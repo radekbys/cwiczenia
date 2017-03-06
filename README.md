@@ -1,0 +1,2 @@
+# cwiczenia
+moje pseudo kody
